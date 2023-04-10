@@ -1,13 +1,16 @@
-# ST-DIO-IJD-M-SIC-RELAX
-#A maior demonstração de Amor da história.
 STÚDIO IJD MÚSIC RELAX
+
+#A maior demonstração de Amor da história.
+
+https://sites.google.com/view/i-j-d-msic-relax
+
+https://www.youtube.com/channel/UC1B5feaZpaWxa2LFnwx-X-Q
 
 #Lutar e Vencer
 http://bit.ly/3Z2LclM 
 
-#A maior demonstração de Amor da história.
-
 João 3:16. https://www.tiktok.com/@user4cd2p24xby
+
 "Porque Deus tanto amou o mundo que deu o seu Filho Unigênito, para que todo o que nele crer não pereça, mas tenha a vida eterna.
 
 01- https://www.tiktok.com/@user4cd2p24xby/video/7205592820478954757?is_from_webapp=1&sender_device=pc&web_id=7160271665455597062 
@@ -59,6 +62,7 @@ https://www.tiktok.com/@ismaeldjdias?lang=pt-BR
 
 
 https://github.com/ismaeldjdias/ST-DIO-IJD-M-SIC-RELAX.git
+
 
 
 
